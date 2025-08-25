@@ -9,5 +9,5 @@
 ![PXL_20250825_180846554](https://github.com/user-attachments/assets/b83bbc67-4c75-4d97-a022-5f9694b78579)
 
 
-https://github.com/user-attachments/assets/00b822fa-d0b4-4483-904c-b70ec990d627
+
 
