@@ -1,7 +1,7 @@
 Bracket: https://a360.co/4myfHN1
 <img width="1920" height="1032" alt="image" src="https://github.com/user-attachments/assets/41d2b272-0ea0-4892-9688-e6db7d02fdb0" />
 Bottom: https://a360.co/3HTBHml
-<img width="1920" height="1032" alt="image" src="https://github.com/user-attachments/assets/874cd949-aece-43ad-b1d2-a2388690d90d" />
+<img width="1920" height="1032" alt="image" src="https://github.com/user-attachments/assets/5b4f61b9-1462-462d-879c-75b359c26f85" />
 Top: https://a360.co/3Jwo4dd
 <img width="1920" height="1032" alt="image" src="https://github.com/user-attachments/assets/796ff7c2-d760-4bf3-bdf7-ce5ffd989219" />
 Wing: https://a360.co/467V9Fa
